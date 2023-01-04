@@ -1,1 +1,0 @@
-# deleikk.github.io
